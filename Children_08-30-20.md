@@ -5,6 +5,7 @@ Dear Father, thank you for gathering us here tonight. Bible says if there are tw
 
 # Intro
 3 years ago, I went to the Great Smoky Mountains with a group of my friends for our Student Fellowship retreat. And I took this beautiful picture there. The view is so amazing. That made me to think about how great our God is for creating all these creations. 
+
 When you are at the top of a mountain, you can often see things you never would have thought you could see when you were on the ground below. 
 Today, we will learn about a time three of Jesus’ followers saw something miraculous at the top of a mountain. Whether this is your first time or your tenth time hearing this story, there is always something new to learn in God’s Word.
 
